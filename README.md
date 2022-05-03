@@ -10,4 +10,4 @@
 
 ![My Alternate Portfolio Website](https://raw.githubusercontent.com/suryasashankgundepudi/suryasashankgundepudi.github.io/main/Professional%20Website.JPG)
 
-Please hit me up at gundepudi18047@mech.ssn.edu.in for feedback
+Please hit me up at sashanksurya9wj@gmail.com for feedback
